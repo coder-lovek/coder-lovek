@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **lovekumar.200442@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
